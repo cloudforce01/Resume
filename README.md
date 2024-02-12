@@ -1,2 +1,2 @@
 # Resume
-This document contains skills and the portfolio of projects done.
+This document presents a comprehensive overview of professional skills and highlights a portfolio of accomplished projects.
